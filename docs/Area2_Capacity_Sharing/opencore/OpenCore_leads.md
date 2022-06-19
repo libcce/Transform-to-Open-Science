@@ -30,7 +30,7 @@ Deadline is June 15th. SMEs are being selected on a rolling basis. Current SME s
 4. [Tomoko Bell](https://www.linkedin.com/in/tomoko-bell-49330321b)
 5. [Shamsuddeen Muhammad](https://www.shmuhammad.com/)
 6. [Stephen	Klusza](https://twitter.com/codebiologist)
-7. [Mariana	Meireles](https://twitter.com/mari_meir)
+7. [Mariana	Meireles](https://psychonautgirl.space/)
 
 ### Open Data
 
